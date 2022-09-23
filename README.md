@@ -1,4 +1,4 @@
-# :butterfly: bom dia?
+# :butterfly: Bom dia?
 - :grinning: oi!, eu sou a Flavia Gabriela
 -  :mailbox:  Meu e-mail é: flavia.gabrielarochado.nascimento@escola.pr.gov.br
 -    Eu sou estudante do 1º Ano do Ensino Medio
